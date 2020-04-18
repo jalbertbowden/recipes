@@ -1,2 +1,3 @@
-# recipes
-Open source recipes
+# Recipes  
+
+Open source recipes cookbook.
