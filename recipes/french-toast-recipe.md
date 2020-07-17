@@ -15,7 +15,7 @@
 | Pinch  | of salt                       |
 | 2      | tablespoons granulated sugar  |
 | 1 ½    | teaspoons ground cinnamon     |
-|        | Butter for the pan            |
+| Dab    | Butter for the pan            |
 
 ## Instructions  
 1. Beat eggs, milk, vanilla, and salt very well in a medium mixing bowl or a large measuring cup. Beat until appearance is uniform with no visible egg pieces showing. Pour into a shallow bowl that's big enough to dip a piece of bread into.
