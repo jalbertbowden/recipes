@@ -16,8 +16,7 @@
 3. Prepare flax egg by combining flax and water in the bowl of the food processor. Pulse a couple times and then let rest for a few minutes.
 4. Add remaining ingredients (besides walnuts or other toppings) and puree – about 3 minutes – scraping down sides as needed. You want it pretty smooth.
 5. If the batter appears too thick, add a Tbsp or two of water and pulse again. It should be slightly less thick than chocolate frosting but nowhere close to runny.
-6. Evenly distribute the batter into the muffin tin and smooth the tops with a spoon or your finger.
-6a. Optional: Sprinkle with crushed walnuts, pecans or chocolate chips.
+6. Evenly distribute the batter into the muffin tin and smooth the tops with a spoon or your finger. Optional: Sprinkle with crushed walnuts, pecans or chocolate chips.
 7. Bake for 20-26 minutes or until the tops are dry and the edges start to pull away from the sides. I found mine took about 25.
 8. Remove from oven and let cool for 30 minutes before removing from pan. They will be tender, so remove gently with a fork. The insides are meant to be very fudgy, so don’t be concerned if they seem too moist – that’s the point. Plus, they’re vegan so it doesn’t really matter.
 9. Store in an airtight container for up to a few days. Refrigerate to keep longer.
